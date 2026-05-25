@@ -1,1 +1,1 @@
-# -SC_302_Documentacion_JN_Dilshot
+# SC_302_Documentacion_JN_Dilshot
